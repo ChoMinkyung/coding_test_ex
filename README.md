@@ -21,5 +21,5 @@ https://school.programmers.co.kr/
 
 > If you have any questions, please email below. <br>
 >
-> - mim: 12181837@inha.edu
+> - mim: mkjo99@naver.com
 
